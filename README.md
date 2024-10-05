@@ -1,10 +1,10 @@
-# **[Prodigy Math Cheats and Cheat Menus - Unlocking Your Success](https://linktr.ee/WinCheat)**
+# **[Prodigy Math Cheats and Cheat Menus - Unlocking Your Success](https://shorturl.at/csUXE)**
 
 Are you prepared to advance your Prodigy Math knowledge? There's nowhere else to look! We'll go into the realm of Prodigy hacks and cheat menus in this extensive tutorial to help you succeed in the game. These pointers and strategies will give you the advantage you need to succeed, whether you're a parent trying to help your child's educational path or a student looking to improve your maths abilities.
 
-![prodigymath](https://github.com/prodigycheats/menus/assets/135132217/1ce6c7eb-ba7d-4d40-9145-a88e4e8c2492)
+[![prodigymath](https://github.com/prodigycheats/menus/assets/135132217/1ce6c7eb-ba7d-4d40-9145-a88e4e8c2492)](https://shorturl.at/csUXE)
 
-## [GET THE LATEST PRODIGY MATH CHEATS - [CLICK HERE]](https://linktr.ee/WinCheat)
+## [GET THE LATEST PRODIGY MATH CHEATS - [CLICK HERE]](https://shorturl.at/csUXE)
 
 **Comprehending Prodigy Tricks**
 
@@ -26,7 +26,7 @@ A unique cheat menu extension called Will's Prodigy cheat menu was created by Wi
 
 Codes for cheating include an additional method to improve Prodigy Math gameplay. When these codes are typed into the game, exclusive features or undiscovered benefits are unlocked. Even while using cheat codes to test out new game features may be entertaining, it's crucial to use them sensibly to prevent interfering with other players' or your own intended gameplay experience.
 
-**[Prodigy Cheating Guide](https://linktr.ee/WinCheat)**
+**[Prodigy Cheating Guide](https://shorturl.at/csUXE)**
 
 While there may be short-term benefits to cheating in Prodigy Maths, it's important to keep in mind the value of education and skill development. Rather of depending on methods of cheating, concentrate on honing your mathematical skills by practice, commitment, and persistence. Utilise Prodigy Math as a tool to enhance classroom instruction and foster critical thinking abilities in an entertaining and dynamic manner.
 
